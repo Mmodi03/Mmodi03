@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mmodi03
-- 👀 I’m interested in learning new things
+- 👀 I’m interested in learning new Skills
 - 🌱 I’m currently learning DS
   
 
